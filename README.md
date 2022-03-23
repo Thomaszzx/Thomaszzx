@@ -1,0 +1,4 @@
+- 👋 Meu nome é Thomas!
+- 🥤 Gosto de assistir series e jogar!
+- 🔧 Estou aprendendo a programar!
+- 🌐 Fale comigo Nesse Servidor de discord: https://discord.gg/Z9JXjBGqyX
